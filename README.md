@@ -1,0 +1,1 @@
+# stratego22.github.io
